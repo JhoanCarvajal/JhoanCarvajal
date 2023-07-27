@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **jhoanscq@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/jhoan-sebastian-carvajal-quinchia-572899208/](https://www.linkedin.com/in/jhoan-sebastian-carvajal-quinchia-572899208/)
+- 📄 Know about my experiences [linkedin](https://www.linkedin.com/in/jhoan-sebastian-carvajal-quinchia-572899208/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
